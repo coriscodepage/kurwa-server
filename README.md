@@ -1,1 +1,1 @@
-# kurwa-server
+BARTEK SKURWIELU RÓB S P A W N
